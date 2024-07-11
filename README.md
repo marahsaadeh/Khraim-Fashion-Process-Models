@@ -1,2 +1,2 @@
 # Khraim-Fashion-Process-Models
-![Khraim Fashion Order to cash](https://github.com/marahsaadeh/Khraim-Fashion-Process-Models/assets/92647123/920138c7-829a-4b5a-b64b-dd6ad0471764)
+[Khraim Fashion Order to cash.pdf](https://github.com/user-attachments/files/16179185/Khraim.Fashion.Order.to.cash.pdf)
